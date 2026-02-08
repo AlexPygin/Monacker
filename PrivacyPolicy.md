@@ -1,6 +1,6 @@
 This privacy policy contains the type of information collected by I, the developer, in Monacker available on the Apple App Store and, how that data is used.
 
-If you have additional questions or require more information about this privacy policy, please contact me at monackerapp@gmail.com.
+If you have additional questions or require more information about this privacy policy, please contact me at alexpyginapps@gmail.com.
 
 Consent
 
